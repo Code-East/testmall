@@ -1,2 +1,0 @@
-# testmall
-klhjaskld
